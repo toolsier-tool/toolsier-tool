@@ -4,6 +4,8 @@ Emojis are a great way to express emotions without using words. 😊 They make y
 
 ### Visit 👉 [Emoji Copy Paste Tool](https://www.toolsier.com/free-emoji-copy-paste-tool/)
 
+![image](https://github.com/user-attachments/assets/c7173e10-87fd-4fa4-9953-c3de8ecdc7a5)
+
 ### **Why use emojis?**
 
 1️⃣ Express feelings: Emojis help show emotions like happiness 😄, sadness 😢, or excitement 🎉. 
